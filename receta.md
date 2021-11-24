@@ -1,0 +1,1 @@
+Colocas una rebanada de pan y encima le colocas el jamon y el queso y luego la otra rebanada

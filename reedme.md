@@ -1,0 +1,1 @@
+Primero lee los ingredientes necesarios y despues lleva acabo la receta.
